@@ -35,3 +35,4 @@
 **Dica**: Deixe a cobertura escorrer pelas laterais para um visual ainda mais delicioso!
 
 ## Bom apetite! 😋
+Rosana Costa
