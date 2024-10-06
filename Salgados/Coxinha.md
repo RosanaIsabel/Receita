@@ -50,3 +50,4 @@
 - Para garantir uma casquinha crocante, frite poucas coxinhas de cada vez, evitando que o óleo esfrie.
 
 ## Sirva quente e bom apetite! 🐔
+Rosana Costa
