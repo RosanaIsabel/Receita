@@ -42,3 +42,4 @@
 - Para um efeito mais rústico, deixe as camadas do bolo e recheio aparentes, sem cobrir as laterais.
 
 ## Bom apetite e arrase com seu Naked Cake! 🍰
+Rosana Costa
